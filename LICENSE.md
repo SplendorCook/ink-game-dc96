@@ -1,4 +1,4 @@
-#  
+#  ink game Script best is the best ink game Script, featuring no cooldown and no clip. Safe and powerful for all your needs.
 
 
 
